@@ -1,4 +1,4 @@
-Opa, bão? (👍*D*) 
+Opa, bão? ༼ 👍◕_◕ ༽
 
 <!--**CaioP3r3s/CaioP3r3s** is(☞ﾟヮﾟ)☞ a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
